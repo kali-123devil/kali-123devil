@@ -1,7 +1,7 @@
 # 👋 Hello, I'm Mohammed Musheer
 
 🔧 IT Support Technician | 🔐 CEH Certified | Cybersecurity Enthusiast  
-📍 Based in Hyderabad, India | 💻 Open to Remote & On-site Roles
+📍 Based in Mumbai Mahrashtra, India | 💻 Open to Remote & On-site Roles
 
 ---
 
